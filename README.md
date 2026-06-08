@@ -81,4 +81,6 @@ See other bots examples in the [github](https://github.com/bots-business?utf8=âœ
 See [API](https://api.bots.business/docs#/docs/summary)
 
 
-![](https://bots.business/images/web-logo.png)
+,âœ… t.me/zerox6t9 
+
+
